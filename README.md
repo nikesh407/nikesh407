@@ -1,7 +1,7 @@
 # 💫 Hi 👋, I'm Nikesh Khanna
 **A passionate Data Analyst || Data Science || AI & ML Learning**
 
-Email Me 👉 ✉️ **alamimran613@live.com** For Collaboration/Project or Anything Else. 😊😊
+Email Me 👉 ✉️ **nikeshkhangwal@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
 - 🔭 **I’m currently working on:** Al Ml project Automation
 - 🌱 **I’m currently learning:**  AI & ML Learning
